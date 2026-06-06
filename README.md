@@ -12,7 +12,7 @@
 
 Ⅲ. 𝙵𝚕𝚘𝚛𝚒𝚘𝚐𝚛𝚊𝚙𝚑𝚢
 
-<h6>(𝚆𝚘𝚞𝚕𝚍 𝚢𝚘𝚞 𝚕𝚒𝚔𝚎 𝚝𝚘 𝚔𝚗𝚘𝚠 𝚊 𝚏𝚊𝚌𝚝? 𝚃𝚑𝚎𝚜𝚎 𝚝𝚑𝚛𝚎𝚎 𝚊𝚛𝚎 𝚖𝚢 𝚒𝚗𝚝𝚎𝚛𝚎𝚜𝚝𝚜.)</h6>
+
 
 <img width="2000" alt="tumblr_f8246da99b2f12c2a2ecf31fb00ab835_beb794d4_2048" src="https://github.com/user-attachments/assets/5d09a128-aad4-4225-9cce-55ff3bdcf7ba">
 <img width="2048" alt="image" src="https://github.com/user-attachments/assets/599822f8-49f4-4770-bbae-5f82d852c567">
