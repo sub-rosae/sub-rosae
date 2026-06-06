@@ -15,7 +15,8 @@
 <img width="2000" alt="tumblr_f8246da99b2f12c2a2ecf31fb00ab835_beb794d4_2048" src="https://github.com/user-attachments/assets/5d09a128-aad4-4225-9cce-55ff3bdcf7ba">
 <h1 align="center">𝔇𝔢𝔠𝔞𝔡𝔢𝔫𝔠𝔢</h1>
 <img width="2048" alt="image" src="https://github.com/user-attachments/assets/a55341e1-f223-4451-94e8-9f81425c64c3">
-<p align="center"> Decadence was a late-19th-century movement emphasizing the need for sensationalism, egocentricity, and bizarre, artificial, perverse, and exotic sensations and experiences. By extension, it may refer to a decline in art, literature, science, technology, and work ethics, or (very loosely) to self-indulgent behavior.
+<p align="center">
+  Decadence was a late-19th-century movement emphasizing the need for sensationalism, egocentricity, and bizarre, artificial, perverse, and exotic sensations and experiences. By extension, it may refer to a decline in art, literature, science, technology, and work ethics, or (very loosely) to self-indulgent behavior.
 
 
 
