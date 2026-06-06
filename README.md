@@ -1,9 +1,22 @@
 <img src="https://64.media.tumblr.com/26024fdd8e5a21a205323a3d5e4a6212/29a06502294f959f-51/s1280x1920/86edac342e6d80f3632fc945e8b7b9429c218e6c.pnj" alt="alt text" width="xxx">
 <h1 align="center">𝔚𝔢𝔩𝔠𝔬𝔪𝔢 𝔱𝔬 𝔪𝔶 𝔥𝔲𝔪𝔟𝔩𝔢 𝔞𝔟𝔬𝔡𝔢</h1>
 <img src="https://github.com/user-attachments/assets/475e1ed9-304a-4bf3-9955-9435c8bdd424" width="2000" alt="tumblr_f8246da99b2f12c2a2ecf31fb00ab835_beb794d4_2048">
-<img align="right" width="500" alt="image" src="https://i.pinimg.com/736x/70/dd/d1/70ddd17621efd44374c14e05a16093fc.jpg">
+<img align="right" width="485" alt="image" src="https://github.com/user-attachments/assets/7f073a4a-165f-4f6d-a68d-49923909f211">
 <h2>𝔓𝔯𝔞𝔶, 𝔪𝔞𝔨𝔢 𝔶𝔬𝔲𝔯𝔰𝔢𝔩𝔣 𝔞𝔱 𝔢𝔞𝔰𝔢</h2>
-&ensp; 
+
+𝚃𝚘𝚙𝚒𝚌𝚜 𝚑𝚎𝚛𝚎 𝚒𝚗𝚌𝚕𝚞𝚍𝚎:
+
+Ⅰ. 𝙳𝚎𝚌𝚊𝚍𝚎𝚗𝚌𝚎
+
+Ⅱ. 𝙳𝚎𝚌𝚘𝚛𝚞𝚖
+
+Ⅲ. 𝙳𝚎𝚜𝚒𝚛𝚎
+
+<img width="2000" alt="tumblr_f8246da99b2f12c2a2ecf31fb00ab835_beb794d4_2048" src="https://github.com/user-attachments/assets/5d09a128-aad4-4225-9cce-55ff3bdcf7ba">
+<h1 align="center">𝔇𝔢𝔠𝔞𝔡𝔢𝔫𝔠𝔢</h1>
+<img width="2048" alt="image" src="https://github.com/user-attachments/assets/a55341e1-f223-4451-94e8-9f81425c64c3">
+
+
 
 
 
