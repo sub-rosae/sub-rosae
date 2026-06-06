@@ -1,5 +1,10 @@
 <img src="https://64.media.tumblr.com/26024fdd8e5a21a205323a3d5e4a6212/29a06502294f959f-51/s1280x1920/86edac342e6d80f3632fc945e8b7b9429c218e6c.pnj" alt="alt text" width="xxx">
 <h1 align="center">𝖂𝖊𝖑𝖈𝖔𝖒𝖊 𝖙𝖔 𝖒𝖞 𝖍𝖚𝖒𝖇𝖑𝖊 𝖆𝖇𝖔𝖉𝖊</h1>
+<img width="2000" height="200" alt="image" src="https://github.com/user-attachments/assets/701132db-6919-4ccd-8f94-ca1889dc95ed">
+<img align="right" width="500" height="300" alt="image" src="https://github.com/user-attachments/assets/fe732d05-2efb-4375-b843-48ccaaac87a7">
+Need anything?
+
+
 
 <!--
 **sub-rosae/sub-rosae** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
