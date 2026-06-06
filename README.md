@@ -1,8 +1,9 @@
 <img src="https://64.media.tumblr.com/26024fdd8e5a21a205323a3d5e4a6212/29a06502294f959f-51/s1280x1920/86edac342e6d80f3632fc945e8b7b9429c218e6c.pnj" alt="alt text" width="xxx">
-<h1 align="center">𝖂𝖊𝖑𝖈𝖔𝖒𝖊 𝖙𝖔 𝖒𝖞 𝖍𝖚𝖒𝖇𝖑𝖊 𝖆𝖇𝖔𝖉𝖊</h1>
-<img width="2000" height="200" alt="image" src="https://github.com/user-attachments/assets/701132db-6919-4ccd-8f94-ca1889dc95ed">
-<img align="right" width="500" height="300" alt="image" src="https://github.com/user-attachments/assets/fe732d05-2efb-4375-b843-48ccaaac87a7">
-Need anything?
+<h1 align="center">𝔚𝔢𝔩𝔠𝔬𝔪𝔢 𝔱𝔬 𝔪𝔶 𝔥𝔲𝔪𝔟𝔩𝔢 𝔞𝔟𝔬𝔡𝔢</h1>
+<img width="2000" height="80" alt="tumblr_f8246da99b2f12c2a2ecf31fb00ab835_beb794d4_2048" src="https://github.com/user-attachments/assets/475e1ed9-304a-4bf3-9955-9435c8bdd424">
+<img align="right" width="500" height="300" alt="image" src="https://i.pinimg.com/736x/70/dd/d1/70ddd17621efd44374c14e05a16093fc.jpg">
+<h3>𝔓𝔯𝔞𝔶, 𝔪𝔞𝔨𝔢 𝔶𝔬𝔲𝔯𝔰𝔢𝔩𝔣 𝔞𝔱 𝔢𝔞𝔰𝔢</h3>
+&ensp; 
 
 
 
