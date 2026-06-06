@@ -55,10 +55,10 @@
   <img src="https://github.com/user-attachments/assets/718a71e5-9595-4615-8eec-0906a49a4854" width="33%">
 </p>
 <img width="2048" alt="image" src="https://github.com/user-attachments/assets/599822f8-49f4-4770-bbae-5f82d852c567">
-<img width="2000" alt="tumblr_f8246da99b2f12c2a2ecf31fb00ab835_beb794d4_2048" src="https://github.com/user-attachments/assets/4174f230-4b74-4e5c-91e6-7a92b37dcd70">
+<img width="2000" alt="image" src="https://github.com/user-attachments/assets/d6d5d3e6-9c61-4949-9fe4-48ca1635f940">
 <img width="2048" alt="image" src="https://github.com/user-attachments/assets/7f3f2308-dc28-4d33-bd5b-7d29e9abc4f1">
 <img width="2048" alt="image" src="https://github.com/user-attachments/assets/ee518c1a-3b61-4e03-b03c-8dcc1249f870">
-<img width="2000" alt="tumblr_f8246da99b2f12c2a2ecf31fb00ab835_beb794d4_2048" src="https://github.com/user-attachments/assets/4174f230-4b74-4e5c-91e6-7a92b37dcd70">
+<img width="2000" alt="image" src="https://github.com/user-attachments/assets/d6d5d3e6-9c61-4949-9fe4-48ca1635f940">
 <h1 align="center">𝔗𝔥𝔞𝔫𝔨 𝔶𝔬𝔲 𝔣𝔬𝔯 𝔠𝔬𝔪𝔦𝔫𝔤</h1>
 <img width="1024" alt="image" src="https://github.com/user-attachments/assets/57cffc41-b389-40ae-8c49-89e5b076819f">
 
