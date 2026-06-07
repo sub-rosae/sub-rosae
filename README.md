@@ -1,4 +1,5 @@
 <img src="https://64.media.tumblr.com/26024fdd8e5a21a205323a3d5e4a6212/29a06502294f959f-51/s1280x1920/86edac342e6d80f3632fc945e8b7b9429c218e6c.pnj" alt="alt text" width="xxx">
+<div align="center"><img width="400" alt="Web_Photo_Editor-removebg-preview" src="https://github.com/user-attachments/assets/2681e722-33bd-4da2-a5f2-b4f3af926d11"></div>
 <h1 align="center">𝔚𝔢𝔩𝔠𝔬𝔪𝔢 𝔱𝔬 𝔪𝔶 𝔥𝔲𝔪𝔟𝔩𝔢 𝔞𝔟𝔬𝔡𝔢</h1>
 <img src="https://github.com/user-attachments/assets/475e1ed9-304a-4bf3-9955-9435c8bdd424" width="2000" alt="tumblr_f8246da99b2f12c2a2ecf31fb00ab835_beb794d4_2048">
 <img align="right" width="485" alt="image" src="https://github.com/user-attachments/assets/7f073a4a-165f-4f6d-a68d-49923909f211">
@@ -60,6 +61,7 @@
 <img width="2048" alt="image" src="https://github.com/user-attachments/assets/ee518c1a-3b61-4e03-b03c-8dcc1249f870">
 <img width="2000" alt="image" src="https://github.com/user-attachments/assets/d6d5d3e6-9c61-4949-9fe4-48ca1635f940">
 <h1 align="center">𝔗𝔥𝔞𝔫𝔨 𝔶𝔬𝔲 𝔣𝔬𝔯 𝔠𝔬𝔪𝔦𝔫𝔤</h1>
+<div align="center"><img width="200" alt="download-removebg-preview" src="https://github.com/user-attachments/assets/4561087b-f7f7-46b0-8dda-003af502b8e2"></div>
 <img width="1024" alt="image" src="https://github.com/user-attachments/assets/57cffc41-b389-40ae-8c49-89e5b076819f">
 
 
