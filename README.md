@@ -13,6 +13,10 @@
 
 Ⅲ. 𝙵𝚕𝚘𝚛𝚒𝚘𝚐𝚛𝚊𝚙𝚑𝚢
 
+Ⅳ. 𝚁𝚘𝚖𝚊𝚗𝚌𝚎
+
+Ⅴ. 𝙻𝚒𝚝𝚎𝚛𝚊𝚝𝚞𝚛𝚎
+
 
 
 <img width="2000" alt="tumblr_f8246da99b2f12c2a2ecf31fb00ab835_beb794d4_2048" src="https://github.com/user-attachments/assets/5d09a128-aad4-4225-9cce-55ff3bdcf7ba">
@@ -56,6 +60,33 @@
   <img src="https://github.com/user-attachments/assets/718a71e5-9595-4615-8eec-0906a49a4854" width="33%">
 </p>
 <img width="2048" alt="image" src="https://github.com/user-attachments/assets/599822f8-49f4-4770-bbae-5f82d852c567">
+<h1 align="center">ℜ𝔬𝔪𝔞𝔫𝔠𝔢</h1>
+<img width="2048" alt="image" src="https://github.com/user-attachments/assets/a55341e1-f223-4451-94e8-9f81425c64c3">
+<div align="center">
+
+𝚁𝚘𝚖𝚊𝚗𝚌𝚎 𝚌𝚊𝚗 𝚋𝚎 𝚍𝚎𝚜𝚌𝚛𝚒𝚋𝚎𝚍 𝚊𝚜 𝚝𝚑𝚎 𝚎𝚡𝚙𝚛𝚎𝚜𝚜𝚒𝚘𝚗 𝚘𝚏 𝚘𝚗𝚎’𝚜 𝚜𝚝𝚛𝚘𝚗𝚐 𝚊𝚏𝚏𝚎𝚌𝚝𝚒𝚘𝚗𝚜, 𝚘𝚛 𝚘𝚗𝚎’𝚜 𝚍𝚎𝚎𝚙 𝚊𝚗𝚍 𝚜𝚝𝚛𝚘𝚗𝚐 𝚎𝚖𝚘𝚝𝚒𝚘𝚗𝚊𝚕 𝚍𝚎𝚜𝚒𝚛𝚎𝚜 𝚝𝚘 𝚒𝚗𝚝𝚒𝚖𝚊𝚝𝚎𝚕𝚢 𝚌𝚘𝚗𝚗𝚎𝚌𝚝 𝚠𝚒𝚝𝚑 𝚜𝚘𝚖𝚎𝚘𝚗𝚎. 𝚃𝚑𝚎 𝚠𝚘𝚛𝚍 "𝚛𝚘𝚖𝚊𝚗𝚌𝚎" 𝚒𝚜 𝚍𝚎𝚛𝚒𝚟𝚎𝚍 𝚏𝚛𝚘𝚖 𝚝𝚑𝚎 𝙻𝚊𝚝𝚒𝚗 𝚠𝚘𝚛𝚍 𝚁𝚘𝚖𝚊𝚗𝚞𝚜, 𝚖𝚎𝚊𝚗𝚒𝚗𝚐 "𝚁𝚘𝚖𝚎" 𝚘𝚛 "𝚁𝚘𝚖𝚊𝚗".
+
+</div>
+<p float="left">
+  <img src="https://github.com/user-attachments/assets/ceec4c21-eccb-4928-a524-182be7c562c3" width="33%">
+  <img src="https://github.com/user-attachments/assets/4f02e947-930e-4b06-9174-b5aa134ce8db" width="33%">
+  <img src="https://github.com/user-attachments/assets/9118b2f4-c6d0-4dba-9629-55ee8bd04c5b" width="33%">
+</p>
+<img width="2048" alt="image" src="https://github.com/user-attachments/assets/599822f8-49f4-4770-bbae-5f82d852c567">
+<h1 align="center">𝔏𝔦𝔱𝔢𝔯𝔞𝔱𝔲𝔯𝔢</h1>
+<img width="2048" alt="image" src="https://github.com/user-attachments/assets/a55341e1-f223-4451-94e8-9f81425c64c3">
+<div align="center">
+
+𝙻𝚒𝚝𝚎𝚛𝚊𝚝𝚞𝚛𝚎 𝚒𝚜 𝚊 𝚋𝚘𝚍𝚢 𝚘𝚏 𝚠𝚛𝚒𝚝𝚝𝚎𝚗 𝚠𝚘𝚛𝚔𝚜. 𝙷𝚘𝚠𝚎𝚟𝚎𝚛, 𝚝𝚑𝚎 𝚗𝚊𝚖𝚎 𝚑𝚊𝚜 𝚝𝚛𝚊𝚍𝚒𝚝𝚒𝚘𝚗𝚊𝚕𝚕𝚢 𝚋𝚎𝚎𝚗 𝚊𝚙𝚙𝚕𝚒𝚎𝚍 𝚝𝚘 𝚝𝚑𝚘𝚜𝚎 𝚒𝚖𝚊𝚐𝚒𝚗𝚊𝚝𝚒𝚟𝚎 𝚠𝚘𝚛𝚔𝚜 𝚘𝚏 𝚙𝚘𝚎𝚝𝚛𝚢 𝚊𝚗𝚍 𝚙𝚛𝚘𝚜𝚎 𝚍𝚒𝚜𝚝𝚒𝚗𝚐𝚞𝚒𝚜𝚑𝚎𝚍 𝚋𝚢 𝚝𝚑𝚎 𝚒𝚗𝚝𝚎𝚗𝚝𝚒𝚘𝚗𝚜 𝚘𝚏 𝚝𝚑𝚎𝚒𝚛 𝚊𝚞𝚝𝚑𝚘𝚛𝚜 𝚊𝚗𝚍 𝚝𝚑𝚎 𝚙𝚎𝚛𝚌𝚎𝚒𝚟𝚎𝚍 𝚊𝚎𝚜𝚝𝚑𝚎𝚝𝚒𝚌 𝚎𝚡𝚌𝚎𝚕𝚕𝚎𝚗𝚌𝚎 𝚘𝚏 𝚝𝚑𝚎𝚒𝚛 𝚎𝚡𝚎𝚌𝚞𝚝𝚒𝚘𝚗.
+
+</div>
+<p float="left">
+  <img src="https://github.com/user-attachments/assets/07a5837e-6d86-41d8-99d8-ccd78aa1c9ec" width="33%">
+  <img src="https://github.com/user-attachments/assets/fea8533b-addb-4dae-afd2-d3dc4915f36d" width="33%">
+  <img src="https://github.com/user-attachments/assets/ab78437d-540a-42d4-9aba-8845c2bbf778" width="33%">
+</p>
+<img width="2048" alt="image" src="https://github.com/user-attachments/assets/599822f8-49f4-4770-bbae-5f82d852c567">
+
 <img width="2000" alt="image" src="https://github.com/user-attachments/assets/d6d5d3e6-9c61-4949-9fe4-48ca1635f940">
 <img width="2048" alt="image" src="https://github.com/user-attachments/assets/7f3f2308-dc28-4d33-bd5b-7d29e9abc4f1">
 <img width="2048" alt="image" src="https://github.com/user-attachments/assets/ee518c1a-3b61-4e03-b03c-8dcc1249f870">
